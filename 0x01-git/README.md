@@ -1,1 +1,1 @@
-stay strong ALL time. 
+stay strong ALL time 
